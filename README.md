@@ -40,6 +40,8 @@ ___
 화면 1
 ![images](https://github.com/user-attachments/assets/23053f54-b6fe-490e-bc01-3e127939c6bb)
 
+![Untitled](https://github.com/user-attachments/assets/0a612e6e-47c7-4ddd-a813-7f3872f329bd)
+
 
 화면2
 
